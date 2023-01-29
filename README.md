@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @harmonous12
-- 👀 I’m interested in MUSIC
+- 👀 I’m interested in X
 - 💞️ I’m looking to collaborate on X
 - 📫 How to reach me CHINA
 
